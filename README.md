@@ -1,6 +1,6 @@
-💯 Currently on smn really cool I think 
-🥀 DevOPS / Cloud / Linux / Networking 
-💔 We're failing uni with this one ❤️‍🔥
+<br> 💯 Currently on smn really cool I think </br>
+<br> 🥀 DevOPS / Cloud / Linux / Networking </br>
+<br> 💔 We're failing uni with this one ❤️‍🔥 </br>
 🍒 For connection or collab:
 
 - Discord: plocord
