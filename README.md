@@ -1,7 +1,7 @@
-💯 > Currently on smn really cool I think \n
-🥀 > DevOPS / Cloud / Linux / Networking \n
-💔 > We're failing uni with this one ❤️‍🔥 \n
-🍒 > For connection or collab: \n
+💯 Currently on smn really cool I think 
+🥀 DevOPS / Cloud / Linux / Networking 
+💔 We're failing uni with this one ❤️‍🔥
+🍒 For connection or collab:
 
 - Discord: plocord
 - Email: plocord@duck.com
