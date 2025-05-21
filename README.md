@@ -7,4 +7,4 @@
 - Email: plocord@duck.com
 - [Instagram](https://instagram.com/13hfi)
 
-[![NoSkid Verification](https://noskid.today/badge/100x30/?repo=plocord/plocord)](https://noskid.today)
+
