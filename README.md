@@ -3,7 +3,7 @@
 <br>  📎 We're failing uni with this one 🔥 </br>
 <br>  💌 For connection or collab: </br>
 
-- Discord: plocord
+- Discord: zwbu
 - Email: plocord@duck.com
 - [Instagram](https://instagram.com/13hfi)
 
